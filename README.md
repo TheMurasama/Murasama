@@ -1,6 +1,6 @@
 # Hey bud, interesting, huh?
 A information about Murasama, the kewl-bud, ey?
-https://github.com/TheMurasama/Murasama/blob/main/Icon3.jpg?raw=true
+
 
  Hello there, you can call me as Murasama, for a simple use just Mura, my age is seventeen and all of my efforts are doing out of MY own passion
   * Im mostly there to upload something funny i can make and help people whenever i can
