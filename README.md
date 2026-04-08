@@ -8,6 +8,6 @@ A information about Murasama, the kewl-bud, ey?
   * Do not except any kind of projects from me in soon time, i dont have much time for something like this 
   * But.. if i ever get my chance.. Ill try to do something, ey?
  * My native launguage is Russian, but also i know english pretty not bad!!
-   ![Uploading Calamitas.jpg…]()
+ 
 
 In the greater hopes to meet once again, Adios
