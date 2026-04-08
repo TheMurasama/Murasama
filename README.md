@@ -1,4 +1,4 @@
-# Hey, fellow-bud, interesting, huh?
+# Hey bud, interesting, huh?
 A information about Murasama, the kewl-bud, ey?
 
 
